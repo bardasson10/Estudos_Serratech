@@ -1,2 +1,2 @@
 # Estudos_Serratech
-# Hoje tem vitorio do vascao!
+# Hoje tem vitoria do vascao!
